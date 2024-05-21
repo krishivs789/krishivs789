@@ -17,7 +17,7 @@ Feel free to reach out to me if you want to collaborate 🤝 on a project or jus
 
 - 📧 [Your Email](krishivs789@gmail.com)
 - 💼 [LinkedIn](https://www.linkedin.com/in/your-profile)
-- 🐦 [X (formerly Twitter)(https://x.com/KrishivS196935/)
+- 🐦 [X](https://x.com/KrishivS196935/)
 - 📸 [Instagram](https://www.instagram.com/krishivs789/)
 - 🧵 [Threads](https://www.threads.net/@krishivs789)
 
