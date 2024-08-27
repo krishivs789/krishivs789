@@ -23,4 +23,4 @@ Feel free to reach out to me if you want to collaborate 🤝 on a project or jus
 
 Thanks for visiting my GitHub profile! 🙌
 
-![GitHub Stats](https://github-readme-stats.vercel.app/api?username=your-github-username&show_icons=true&theme=radical)
+![GitHub Stats](https://github-readme-stats.vercel.app/api?username=krishivs789&show_icons=true&theme=radical)
