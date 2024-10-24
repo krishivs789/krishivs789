@@ -15,7 +15,7 @@ I'm still in high school 🎒, but I'm always eager to learn 📖 and explore ne
 
 Feel free to reach out to me if you want to collaborate 🤝 on a project or just chat about tech 💬:
 
-- 📧 [Your Email](krishivs789@gmail.com)
+- 📧 [krishivs789@gmail.com](krishivs789@gmail.com)
 - 💼 [LinkedIn](https://www.linkedin.com/in/your-profile)
 - 🐦 [X](https://x.com/KrishivS196935/)
 - 📸 [Instagram](https://www.instagram.com/krishivs789/)
